@@ -8,5 +8,7 @@ Meu nome é Calebe Miguel Adão
 
 ### Você pode esntrar em contato comigo 📫
 
-calebemadao@gmail.com,
-Instagram: @calebe_m_adao
+calebemadao@gmail.com
+
+@calebe_m_adao
+
